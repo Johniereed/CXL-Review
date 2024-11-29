@@ -1,4 +1,4 @@
-# CXL Review 2024 | Is Its Courses & Certifications Worth It
+# CXL Review 2024 | Is Its Courses & Certifications Worth It?
 
 This comprehensive, frank evaluation of CXL's courses, mini-degrees, costs, and other important aspects will help you decide if it's the correct choice for you.
 
