@@ -16,7 +16,9 @@ Is the platform worth it, though?
 
 ## Is CXL worth it?
 
-CXL is an online training center with a focus on analytics, growth optimization, conversion optimization, and digital marketing. One percent of the best practitioners in the field teach the courses offered here.
+I get this question a lot "[Is CXL worth it](https://www.linkedin.com/pulse/cxl-review-institute-worth-my-experience-anil-vishwakarma-aqabc/)", I have been using CXL now for almost 2 years and it is worth every penny I spent on it.
+
+CXL mostly focuses on analytics, growth optimization, conversion optimization, and digital marketing. One percent of the best practitioners in the field teach the courses offered here.
 
 It provides more than 100 online CXL courses and certificates in topics including content strategy, digital psychology, and growth marketing.
 
