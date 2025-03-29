@@ -1,4 +1,4 @@
-# CXL Review 2024 | Is Its Courses & Certifications Worth It?
+# CXL Review 2025 | Is Its Courses & Certifications Worth It?
 
 This comprehensive, frank evaluation of CXL's courses, mini-degrees, costs, and other important aspects will help you decide if it's the correct choice for you.
 
@@ -227,7 +227,7 @@ In the early days, I didn't adequately store information. However, you are capab
 
 Compared to premium courses like GrowthSchool, CXL is much better. I spent three hundred dollars, and I was furious.
 
-## CXL Pricing Plans Breakdown (2024)
+## CXL Pricing Plans Breakdown (2025)
 
 Dissecting the Price Tag
 
