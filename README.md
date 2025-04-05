@@ -7,6 +7,7 @@ CXL is the ideal platform for you if you're seeking courses in business developm
 Peep Laza founded CXL (previously ConversionXL), a prominent online learning platform.
 
 Professionals can receive training from the CXL in advanced technological skills, company development, and digital marketing.
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfWSBCwJjCElU71xI3fDX_2F8tfPOSYHLzPNJltHw5czumSxKTfAUnIOpnEqMhuaSlvJxDjJTUmK6iuqGeWvRtdHr5twUsqdS2wq3-F498nG11CPVk0DVjTtRBqhhwfIm4WwmuaMQ?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 CXL certifications are recognized as valuable credentials for marketers looking to demonstrate their expertise in advanced digital marketing strategies and data-driven decision-making.
 
@@ -47,7 +48,7 @@ The Top categories of CXL courses on the platform include:
 * SEO
 * PPC
 
-[[Explore CXL Courses Now]](https://bit.ly/3OritUT)
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfWSBCwJjCElU71xI3fDX_2F8tfPOSYHLzPNJltHw5czumSxKTfAUnIOpnEqMhuaSlvJxDjJTUmK6iuqGeWvRtdHr5twUsqdS2wq3-F498nG11CPVk0DVjTtRBqhhwfIm4WwmuaMQ?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 The fact that CXL exclusively provides top-notch, advanced courses taught by professionals from renowned organizations like Google, IKEA, Hilton, Profitwell, and GrowthHackers distinguishes it from other online learning platforms.
 
@@ -182,6 +183,7 @@ For anyone interested in conducting conversion research, this course covers 85% 
 Conversion rate optimization and the research process required to perform high-quality CRO are best understood with its help.
 
 Peep is quite sharp. He doesn't mince words and gets right to the point.
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeq9wqGnjE2cmmfbrgQPFitBcIR7PxWrqEB9AsQHFjBLd-L6dVWxTgIew7N4206-QQu0slO7VnM6MAz78-4sEWXqESdL9unOfXQFcCoLs1PzkkiauluT4isiMc6h2jC-VpPpEwFzg?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 ### 2) Ton Wesseling: Teaches A/B Mastery
 
@@ -198,6 +200,7 @@ Best practices and A/B testing techniques were covered in my first CXL course.
 I have a solid understanding of how to plan, carry out, and evaluate A/B testing for better conversion rates and website optimization.
 
 I've seen a significant rise in the effectiveness of my online marketing and an increase in the number of visitors who turn into clients thanks to the CXL training.
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeq9wqGnjE2cmmfbrgQPFitBcIR7PxWrqEB9AsQHFjBLd-L6dVWxTgIew7N4206-QQu0slO7VnM6MAz78-4sEWXqESdL9unOfXQFcCoLs1PzkkiauluT4isiMc6h2jC-VpPpEwFzg?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 ### 3) Curt Maly: Advanced Facebook Ads
 
@@ -258,7 +261,8 @@ You have a once-in-a-lifetime chance to save up to 60% on your next purchase by 
 
 ## CXL Free Trial and Refund
 
-You can test out CXL courses for 7 days before deciding to sign up. You can view all of the content during the trial period and ask for a refund if it doesn't work out.
+You can test out **CXL courses for 7 days** before deciding to sign up. You can view all of the content during the trial period and ask for a refund if it doesn't work out.
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfWSBCwJjCElU71xI3fDX_2F8tfPOSYHLzPNJltHw5czumSxKTfAUnIOpnEqMhuaSlvJxDjJTUmK6iuqGeWvRtdHr5twUsqdS2wq3-F498nG11CPVk0DVjTtRBqhhwfIm4WwmuaMQ?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 Refunds are not offered after the trial, so it's crucial to make sure it fits your availability and goals.
 
@@ -345,7 +349,7 @@ My expertise in subjects like psychology, statistics, and A/B testing has direct
 
 The platform is renowned for offering thorough resources that assist users in improving their proficiency in digital marketing, and well-known businesses like Google and Amazon support its legitimacy.
 
-[[TRY CXL Now]](https://bit.ly/3OritUT)
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfWSBCwJjCElU71xI3fDX_2F8tfPOSYHLzPNJltHw5czumSxKTfAUnIOpnEqMhuaSlvJxDjJTUmK6iuqGeWvRtdHr5twUsqdS2wq3-F498nG11CPVk0DVjTtRBqhhwfIm4WwmuaMQ?key=Mb7328mdmQQZ4wcJ5_3CS1Ii)](https://bit.ly/3OritUT)**
 
 CXL provides a seven-day free trial for people who aren't sure they want to commit, as well as free courses that can give you a sense of the platform’s value.
 
